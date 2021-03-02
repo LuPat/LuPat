@@ -13,5 +13,6 @@ Here are some ideas to get you started:
 - 📫 How to reach me: ...
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...like to listen to melodic death metal
--->
 - Checkout : README page : ariasdrea - GIPHY for MacUser to create gifs
+-->
+
