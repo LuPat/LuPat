@@ -14,3 +14,4 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...like to listen to melodic death metal
 -->
+ariasdrea - GIPHY for MacUser to create gifs
